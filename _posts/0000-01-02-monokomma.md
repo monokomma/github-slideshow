@@ -1,1 +1,1 @@
-Welcome to our second slide!
+Welcome to our second phase!
